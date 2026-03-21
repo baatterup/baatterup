@@ -10,7 +10,7 @@
 𝗁𝖾 / 𝗁𝗂𝗆, 𝗇𝗈 𝗍𝗁𝖾𝗒
  <br/>
  <p align="center">
-  𝗈𝗌𝖽𝖽 𝗌𝗒𝗌𝗍𝖾𝗆 + 𝖽𝗂𝖺𝗀𝗇𝗈𝗌𝖾𝖽 𝗂𝖾𝖽
+ 𝗌𝗎𝗌𝗉𝖾𝖼𝗍𝖾𝖽 𝗈𝗌𝖽𝖽 𝗌𝗒𝗌𝗍𝖾𝗆 + 𝖽𝗂𝖺𝗀𝗇𝗈𝗌𝖾𝖽 𝗂𝖾𝖽
   <br/>
   <p align="center">
    <img src="https://komarev.com/ghpvc/?username=baatterup&color=red&style=plastic&label=✵&abbreviated=true" width="33">
