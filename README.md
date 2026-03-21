@@ -8,6 +8,9 @@
 <br/>
 <p align="center">
 𝗁𝖾 / 𝗁𝗂𝗆, 𝗇𝗈 𝗍𝗁𝖾𝗒
+ <br/>
+ <p align="center">
+  [𝗈𝗌𝖽𝖽 𝗌𝗒𝗌𝗍𝖾𝗆](https://osddeducation.carrd.co/#whatisosdd)
 <br/>
  <br/>
 <p align="center">
