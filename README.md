@@ -14,6 +14,15 @@ Haii you can call me Jona, Jeremy or Scout <img src="https://64.media.tumblr.com
 
 <details align="center">
 
-<summary>ㅤ ${\textsf{\color{#B8383B}›  ֺ۪  BYI }}$ !! </summary
+<summary>ㅤ ${\textsf{\color{#B8383B}›  ֺ۪  BYI }}$  </summary
+
+
+</div>
+
+</details>
+
+<details align="center">
+
+<summary>ㅤ ${\textsf{\color{#B8383B}›  ֺ۪  Stamps n Blinkies }}$ </summary
 
 
