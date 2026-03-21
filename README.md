@@ -13,7 +13,7 @@
   𝗈𝗌𝖽𝖽 𝗌𝗒𝗌𝗍𝖾𝗆
   <br/>
   <p align="center">
-   <img src="https://komarev.com/ghpvc/?username=baatterup&color=red&style=plastic&label=✵&abbreviated=true" width="150">
+   <img src="https://komarev.com/ghpvc/?username=baatterup&color=red&style=plastic&label=✵&abbreviated=true" width="33">
 <br/>
  <br/>
 <p align="center">
