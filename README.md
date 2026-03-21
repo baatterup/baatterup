@@ -22,7 +22,7 @@
 
 <a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/b50fe6bc649e84a279291561c257b41b/c8eb0991c1f80ef1-9b/s75x75_c1/8e182557adc3e22e3ee82786cd0b7832b09b4d23.pnj"></a>ㅤ ⁀➷ please don't interact with me JUST to start something, you're an idiot if you do that
 
-<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/2d12649abb85112baaf424475882626f/c8eb0991c1f80ef1-64/s75x75_c1/9983b3f257f8e05d777821fcb39aca30a3b860db.gifv"></a>ㅤ ⁀➷ if i don't want to talk with you i'll be blunt with it
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/2d12649abb85112baaf424475882626f/c8eb0991c1f80ef1-64/s75x75_c1/9983b3f257f8e05d777821fcb39aca30a3b860db.gifv"></a>ㅤ ⁀➷ if i don't want to talk with you i'll be blunt with it, i don't have a dni and i freeblock
 
 </div>
 
