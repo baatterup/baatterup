@@ -4,7 +4,7 @@
 <img width="732" height="42" alt="image" src="https://64.media.tumblr.com/54e403afcbb637f393d5b3e690909287/3548031b305085ec-77/s1280x1920/dfd548ca2e68c0ea4b2b162aea7ac80df4190bfd.pnj" />
 
 <p align="center">
-<img src="https://64.media.tumblr.com/23089d472dd8054a82aa1e34ba2f05fa/0fa0415b603ed8d4-71/s1280x1920/37faa0b9f819f67d3089f8473b4991c512056597.pnj" width="100" height="150" >haii , call me jona / jeremy / scout <img src="https://64.media.tumblr.com/b406f8fc68adb24f6adb0b8d24229823/0fa0415b603ed8d4-71/s1280x1920/77aaac44cbdbad6954b68983bf3cd0bb345c0950.pnj" width="150" height="150" >
+<img src="https://64.media.tumblr.com/23089d472dd8054a82aa1e34ba2f05fa/0fa0415b603ed8d4-71/s1280x1920/37faa0b9f819f67d3089f8473b4991c512056597.pnj" width="100" height="150" >jona / jeremy / scout <img src="https://64.media.tumblr.com/b406f8fc68adb24f6adb0b8d24229823/0fa0415b603ed8d4-71/s1280x1920/77aaac44cbdbad6954b68983bf3cd0bb345c0950.pnj" width="150" height="150" >
 
 <p align="center">
 
@@ -16,9 +16,13 @@
 
 <summary>ㅤ ${\textsf{\color{#B8383B}›  ֺ۪  BYI }}$  </summary
 
-<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/b50fe6bc649e84a279291561c257b41b/c8eb0991c1f80ef1-9b/s75x75_c1/8e182557adc3e22e3ee82786cd0b7832b09b4d23.pnj"></a>ㅤ ˋ°•*⁀➷ txt
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/b50fe6bc649e84a279291561c257b41b/c8eb0991c1f80ef1-9b/s75x75_c1/8e182557adc3e22e3ee82786cd0b7832b09b4d23.pnj"></a>ㅤ ⁀➷ i'm heavily misanthropic , i don't do well with conversations if i don't know you well, but it might change if you do actually get to know me
 
-<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/2d12649abb85112baaf424475882626f/c8eb0991c1f80ef1-64/s75x75_c1/9983b3f257f8e05d777821fcb39aca30a3b860db.gifv"></a>ㅤ ˋ°•*⁀➷ txt
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/2d12649abb85112baaf424475882626f/c8eb0991c1f80ef1-64/s75x75_c1/9983b3f257f8e05d777821fcb39aca30a3b860db.gifv"></a>ㅤ ⁀➷ i overthink a lot, which means i start overthinking even the slightest change of tone, i'd prefer if you use tonetags or flatout say what you think of me
+
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/2d12649abb85112baaf424475882626f/c8eb0991c1f80ef1-64/s75x75_c1/9983b3f257f8e05d777821fcb39aca30a3b860db.gifv"></a>ㅤ ⁀➷ please don't interact with me JUST to start something, you're an idiot if you do that
+
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/2d12649abb85112baaf424475882626f/c8eb0991c1f80ef1-64/s75x75_c1/9983b3f257f8e05d777821fcb39aca30a3b860db.gifv"></a>ㅤ ⁀➷ if i don't want to talk with you i'll be blunt with it
 
 </div>
 
