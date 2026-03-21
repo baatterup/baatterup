@@ -42,7 +42,7 @@
 
 <details align="center">
 
-<summary>ㅤ ${\textsf{\color{#B8383B}›  ֺ۪  Stamps n Blinkies }}$ </summary
+<summary>ㅤ ${\textsf{\color{#B8383B}›  ֺ۪  stamps & blinkies }}$ </summary
 
  <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/6b22736ed9c5095434ec9299a9997bf1/c8eb0991c1f80ef1-2f/s100x200/a60b7e6ab23fb809c110d714eeb6e79f14a94a43.gifv"></a>
 
