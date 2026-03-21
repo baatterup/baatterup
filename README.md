@@ -15,7 +15,10 @@
 <details align="center">
 
 <summary>ㅤ ${\textsf{\color{#B8383B}›  ֺ۪  BYI }}$  </summary
-m
+
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/b50fe6bc649e84a279291561c257b41b/c8eb0991c1f80ef1-9b/s75x75_c1/8e182557adc3e22e3ee82786cd0b7832b09b4d23.pnj"></a>ㅤ ˋ°•*⁀➷ txt
+
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/2d12649abb85112baaf424475882626f/c8eb0991c1f80ef1-64/s75x75_c1/9983b3f257f8e05d777821fcb39aca30a3b860db.gifv"></a>ㅤ ˋ°•*⁀➷ txt
 
 </div>
 
@@ -25,3 +28,6 @@ m
 
 <summary>ㅤ ${\textsf{\color{#B8383B}›  ֺ۪  Stamps n Blinkies }}$ </summary
 
+ <a href="" target="_blank"><img width="120" src="https://64.media.tumblr.com/6b22736ed9c5095434ec9299a9997bf1/c8eb0991c1f80ef1-2f/s100x200/a60b7e6ab23fb809c110d714eeb6e79f14a94a43.gifv"></a>
+
+ <a href="" target="_blank"><img width="200" src="https://64.media.tumblr.com/0cd6f1d6af9401abada9716a67a19456/6bce88b582e8202b-4a/s250x400/29915c6830dea8ca9bd2f887f925af784f9581e9.gifv"></a>
