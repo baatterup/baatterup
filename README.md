@@ -51,7 +51,24 @@
  <a href="" target="_blank"><img width="200" src="https://64.media.tumblr.com/0cd6f1d6af9401abada9716a67a19456/6bce88b582e8202b-4a/s250x400/29915c6830dea8ca9bd2f887f925af784f9581e9.gifv"></a> <a href="" target="_blank"><img width="200" src="https://file.garden/aSd5lebnTCh3RN_v/github/tumblr_dc9c8abe17b7624033f473435419233b_578999ae_250.webp"></a>  <a href="" target="_blank"><img width="200" src="https://file.garden/aSd5lebnTCh3RN_v/github/tumblr_c5991a113d8f60366a82ff6e157fe538_db0b3b93_250.webp"></a>
 
  </details>
- <br/>
+ 
+ </div>
+
+</details>
+
+<details align="center">
+
+<summary>ㅤ ${\textsf{\color{#B8383B}›  ֺ۪  DNI (so far) }}$  </summary
+
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/b50fe6bc649e84a279291561c257b41b/c8eb0991c1f80ef1-9b/s75x75_c1/8e182557adc3e22e3ee82786cd0b7832b09b4d23.pnj"></a>ㅤ ⁀➷ i don't have a DNI as i mentioned, but if you're friends with kater (or kvava) please don't int with me. ill never be like them, and never want to
+
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/2d12649abb85112baaf424475882626f/c8eb0991c1f80ef1-64/s75x75_c1/9983b3f257f8e05d777821fcb39aca30a3b860db.gifv"></a>ㅤ ⁀➷ another one is scoutirl, i dont have hateful feelings towards them but until i feel better about them id like it to stay this way
+
+</details>
+
+</div>
+
+<br/>
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ngu3t6dm6zdduut6ctik7y6qri&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=df5f56&bar_color_cover=false">
