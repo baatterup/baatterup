@@ -60,9 +60,9 @@
 
 <summary>ㅤ ${\textsf{\color{#B8383B}›  ֺ۪  DNI (so far) }}$  </summary
 
-<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/b50fe6bc649e84a279291561c257b41b/c8eb0991c1f80ef1-9b/s75x75_c1/8e182557adc3e22e3ee82786cd0b7832b09b4d23.pnj"></a>ㅤ ⁀➷ i don't have a DNI as i mentioned, but if you're kater (or kvava) please don't int with me. ill never be like them, and never want to. same goes with anybody friends with them, i don't want to interact with racist people
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/b50fe6bc649e84a279291561c257b41b/c8eb0991c1f80ef1-9b/s75x75_c1/8e182557adc3e22e3ee82786cd0b7832b09b4d23.pnj"></a>ㅤ ⁀➷ i don't have a DNI as i mentioned, but if you're kater (or kvava) please don't int with me. i'll never be like them, and never want to. same goes with anybody friends with them, i don't want to interact with racist people
 
-<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/2d12649abb85112baaf424475882626f/c8eb0991c1f80ef1-64/s75x75_c1/9983b3f257f8e05d777821fcb39aca30a3b860db.gifv"></a>ㅤ ⁀➷ another one is scoutirl, i dont have hateful feelings towards them but until i feel better about them id like it to stay this way
+<a href="" target="_blank"><img width="25" src="https://64.media.tumblr.com/2d12649abb85112baaf424475882626f/c8eb0991c1f80ef1-64/s75x75_c1/9983b3f257f8e05d777821fcb39aca30a3b860db.gifv"></a>ㅤ ⁀➷ another one is scoutirl, i dont have hateful feelings towards them but until i feel better about them i'd like it to stay this way. and i'll be honest i dont really??know?? why i'm on their dni, last i remember i have zero interactions with them
 
 </details>
 
